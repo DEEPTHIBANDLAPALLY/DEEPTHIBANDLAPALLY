@@ -5,8 +5,7 @@
 
 - 📫 How to reach me **bandlapallydeepthi@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/w/c/c4eb035851bf9fe1/EeWRJQhKEDFBjt06BRBnkMgBkO-bhpjhmYP97sZ_yBewSw?e=EvZrmI](https://1drv.ms/w/c/c4eb035851bf9fe1/EeWRJQhKEDFBjt06BRBnkMgBkO-bhpjhmYP97sZ_yBewSw?e=EvZrmI)
-
+- 📄 Know about my experiences [[https://1drv.ms/w/c/c4eb035851bf9fe1/EeWRJQhKEDFBjt06BRBnkMgBkO-bhpjhmYP97sZ_yBewSw?e=EvZrmI](https://1drv.ms/w/c/c4eb035851bf9fe1/EeWRJQhKEDFBjt06BRBnkMgBkO-bhpjhmYP97sZ_yBewSw?e=oxy5Le)]
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/deepthi bandlapally" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="deepthi bandlapally" height="30" width="40" /></a>
